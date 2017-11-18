@@ -1,1 +1,1 @@
-# Lan-hexin
+# 爛核心 (Làn héxīn)
